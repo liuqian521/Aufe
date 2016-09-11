@@ -34,7 +34,8 @@
    
 ####联系方式:
 * <kingchin1218@126.com>       
-* <pokemonwei@126.com>     
+* <pokemonwei@126.com>         
+
 有兴趣加入我们的伙伴们可以与该邮箱联系
 
 
